@@ -1,8 +1,11 @@
 # Michele Neves 
 
 My name is Michele Neves 👩 
+
 Hi 🖐
+
 I have a degree in Information System 💻
+
 
 I like to solve problems and learn. I am open to new challenges and ready to face changes.
 
