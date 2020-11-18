@@ -7,7 +7,9 @@ Hi 🖐
 I have a degree in Information System 💻
 
 
-I like to solve problems and learn. I am open to new challenges and ready to face changes.
+I like to solve problems and learn. 
+
+I am open to new challenges and ready to face changes.
 
 ### [](https://github.com/NevesMichele#-quanto-mais-eu-sei-mais-eu-sou-)  🧠"Quanto mais aprendo, mais conhecimento tenho, do que muito pouco sei" [Bryan Moura] 📕
 
