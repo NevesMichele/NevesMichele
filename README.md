@@ -13,7 +13,7 @@ I am open to new challenges and ready to face changes.
 
 ### [](https://github.com/NevesMichele#-quanto-mais-eu-sei-mais-eu-sou-)  🧠"Quanto mais aprendo, mais conhecimento tenho, do que muito pouco sei" [Bryan Moura] 📕
 
--   📍     From SP living in Viana-ES
+-   📍     From SP living in ES
 
 Find me on👇
 
